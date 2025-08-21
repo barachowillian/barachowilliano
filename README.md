@@ -18,7 +18,7 @@
 
 ## Mais sobre mim
 
-![Descrição do GIF](dowloads/orgulhoo.gif)
+![Descrição do GIF](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExMHczZWxhNnc0ZGF4Nmd5bmgydmN0Y2hvNTNzeTVsbjB3dTdjcTJhOSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/qMXcfUGfSeoP9mJ82x/giphy.webp)
 
 ##  Onde me encontrar
 ![INSTAGRAM](https://www.instagram.com/allmeidaz._?igsh=MTB1azB1OXozZnVydQ==)

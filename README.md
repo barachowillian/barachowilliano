@@ -28,7 +28,7 @@
 ##  Onde me encontrar
 [My instagram ](https://www.instagram.com/allmeidaz._?igsh=MTB1azB1OXozZnVydQ==)
 
-![My LinkedIn](https://www.linkedin.com/in/willian-almeida-365710293?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+[My LinkedIn](https://www.linkedin.com/in/willian-almeida-365710293?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 [My Email](mailto:alemeidawillian@gmail.com)
 

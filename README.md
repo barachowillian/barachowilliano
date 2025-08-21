@@ -7,7 +7,7 @@
 
  Tecnologias que estou aprendendo
  HTML, CSS e JavaScript
- Git e GitHub
+ Git, GitHub e
  MySQL
 
 ##  Projetos em andamento
